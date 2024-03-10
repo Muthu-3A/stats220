@@ -5,6 +5,7 @@ Here are some reasons I like her class (I was ****not**** held at _gunpoint_ to 
 * She cultivates a wholesome and inclusive environment
 * The stats app exercises are interactive and entertaining
 * My good friend Jadon Chu sits next to me
+
 To my critics of this last point:
 1. This is my project not yours
 2. There is no reason why I should exclude this truth for the fear of informality
